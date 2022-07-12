@@ -16,7 +16,8 @@ About Us
 Order Now
 
 
-![Web capture_21-6-2022_114322_](https://user-images.githubusercontent.com/107907007/175206530-158da87a-d4eb-4324-9f6a-17e36750a7c5.jpeg)
+![Web capture_12-7-2022_222022_](https://user-images.githubusercontent.com/107907007/178555324-c6ec66fc-00ac-4257-87a2-e2ee7006a4db.jpeg)
+
 
 
 
